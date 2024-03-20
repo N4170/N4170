@@ -1,0 +1,5 @@
+- 👋 Hi, I'm Naito, i'm a Brazilian Guy with a dream;
+- 👀 I’m interested in cybersucurity and some leanguages on general, i have some disturb but this doesn't matter at all;
+- 🌱 I’m currently learning JavaScript for a little project with my friend, but my PC is now dead T-T;
+- 📫 How to reach me ...
+- 😄 Pronouns: Ro/ck
